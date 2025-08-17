@@ -29,4 +29,14 @@ dan jangan takut kamu tidak akan menggunggat apapun.
 
 Terimakasih
 
+Jika kamu merasa program beta ini bagus kamu bisa donasi
+
+kesini:
+
+
+namun jika tidak bisa ya kami tidak mempermasalahkan
+
+atau jika kamu ingin menjadi sponsor untuk betavoke
+
+kamu bisa negosiasi nanti nama kamu akan di taruh kedalam applikasi sehingga orang orang akan tahu siapa yang support project kami
 
