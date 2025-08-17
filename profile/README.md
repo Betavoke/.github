@@ -33,6 +33,7 @@ Jika kamu merasa program beta ini bagus kamu bisa donasi
 
 kesini:
 
+![](https://github.com/Betavoke/.github/blob/main/assets/gibran_brian_darel.png)
 
 namun jika tidak bisa ya kami tidak mempermasalahkan
 
